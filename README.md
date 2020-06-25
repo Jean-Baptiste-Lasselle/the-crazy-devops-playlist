@@ -9,5 +9,6 @@ cause that's the way it goes
   * https://www.youtube.com/watch?v=QJSfieToXSQ
   * https://www.youtube.com/watch?v=YqeW9_5kURI
   * https://www.youtube.com/watch?v=VWSRtPTmRr4 Pharell Williams, "Gust of Wind"
+  * https://www.youtube.com/watch?v=GtUVQei3nX4 Snoop Dogg - Drop It Like It's Hot (Official Music Video) ft. Pharrell Williams
 * eternally : https://www.youtube.com/watch?v=z2qoihbzc3E
 
