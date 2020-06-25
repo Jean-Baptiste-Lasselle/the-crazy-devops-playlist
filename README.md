@@ -7,6 +7,7 @@ cause that's the way it goes
 * T 3 : 
   * https://www.youtube.com/watch?v=f9EM8T5K6d8
   * https://www.youtube.com/watch?v=QJSfieToXSQ
+  * https://www.youtube.com/watch?v=YqeW9_5kURI
 
 * eternally : https://www.youtube.com/watch?v=z2qoihbzc3E
 
