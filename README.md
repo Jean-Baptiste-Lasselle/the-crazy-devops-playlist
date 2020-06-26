@@ -14,5 +14,8 @@ cause that's the way it goes
 * Transformation, level 4x :
   * https://www.youtube.com/watch?v=SvlcpJX4Dn0 Arrested Development ‎– People Everyday - 3 Years, 5 Months And 2 Days In The Life Of
   * https://www.youtube.com/watch?v=-EtLVniWCXQ (When the beat goes on)
+  * https://www.youtube.com/watch?v=JAGbIBiqt1Q Stacy Lattisaw - Jump To The Beat (Funk)
+  
+  
 * eternally : https://www.youtube.com/watch?v=z2qoihbzc3E
 
