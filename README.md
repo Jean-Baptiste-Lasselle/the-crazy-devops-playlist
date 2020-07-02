@@ -17,6 +17,7 @@ cause that's the way it goes
   * https://www.youtube.com/watch?v=JAGbIBiqt1Q Stacy Lattisaw - Jump To The Beat (Funk)
   * https://www.youtube.com/watch?v=low6Coqrw9Y&list=PLMxW7O6yL-jAmJtqVKe3TVP02-2RvQ27f&index=2 The Logical Song - Supertramp
   * https://www.youtube.com/watch?v=VqGQZU2cX1s&list=PLMxW7O6yL-jAmJtqVKe3TVP02-2RvQ27f&index=4 Oh Darling - Supertramp
+  * https://www.youtube.com/watch?v=N1JHqeFxgJs Donna Summer - Try Me I Know We Can Make It (1976)
 * business as usual level : https://www.youtube.com/watch?v=sCT50t-JAMw Guardians of the Galaxy: Awesome Mix Vol. 1 (Original Motion Picture Soundtrack)
   
 * eternally : https://www.youtube.com/watch?v=z2qoihbzc3E
